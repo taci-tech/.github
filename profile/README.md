@@ -1,1 +1,1 @@
-<img src="assets/GitHub%20Taci%20Profile.png"/>
+<img src="https://imagedelivery.net/Dr98IMl5gQ9tPkFM5JRcng/8ae7fb41-e260-4d9c-09b1-8f926cd25100/Ultra"/>
